@@ -1,3 +1,3 @@
 20212974-kimseojeong
 
-kookmin univ.
+kookmin univ. School of Conputer Science
