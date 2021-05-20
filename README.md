@@ -1,1 +1,2 @@
-20212974 kimsj8912
+20212974 kimseojeong
+kookmin univ.
